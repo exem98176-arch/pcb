@@ -18,3 +18,7 @@ I have full file
 <img width="395" height="401" alt="image" src="https://github.com/user-attachments/assets/c152bc95-c74b-468d-8c73-d929d530c493" />
 
 <img width="117" height="132" alt="image" src="https://github.com/user-attachments/assets/17929655-6261-47d5-a0aa-55b51e171472" />
+
+
+
+Ping me @seb sev
